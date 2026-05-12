@@ -1,4 +1,4 @@
-#  
+#  Experience king legacy like never before with advanced Script for king legacy, the #1 Script. Includes instant win and god mode for unbeatable
 
 
 
